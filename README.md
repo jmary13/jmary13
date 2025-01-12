@@ -1,3 +1,4 @@
+[Como.organizar.sua.vida.financeira.Bootcamp.Janne.Mary (5).zip](https://github.com/user-attachments/files/18391187/Como.organizar.sua.vida.financeira.Bootcamp.Janne.Mary.5.zip)
 [Bootcamp Janne Mary - Copy - Atual.xlsx](https://github.com/user-attachments/files/18391135/Bootcamp.Janne.Mary.-.Copy.-.Atual.xlsx)
 - 👋 Hi, I’m @jmary13
 - 👀 I’m interested in ...
